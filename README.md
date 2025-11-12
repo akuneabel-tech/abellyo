@@ -1,2 +1,0 @@
-# abellyo
-ABELLYO SATRIO NUGROHO
